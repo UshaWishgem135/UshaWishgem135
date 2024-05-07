@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @UshaWishgem135
+- 👀 I’m interested in gaming and math.
+- 🌱 I’m currently learning about coding.
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me: by email, I don't like calls from strangers.
+- 😄 Pronouns: she/her, you can also use they/them pronouns.
+- ⚡ Fun fact: none.
